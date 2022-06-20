@@ -1,1 +1,0 @@
-# Estadistica-policial-2022
